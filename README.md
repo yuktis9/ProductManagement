@@ -26,4 +26,4 @@ These exercises reflect simulated business scenarios completed during a formal c
 
 ---
 
-> 📎 For a more detailed view of any specific document or to request a portfolio walk-through, feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/yuktisarwadia).
+> 📎 For a more detailed view of any specific document or to request a portfolio walk-through, feel free to connect with me on [LinkedIn](https://www.linkedin.com/in/yukti-sarwadia).
